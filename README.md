@@ -1,6 +1,5 @@
 
- ![OGC](https://github.com/Blessing450/Blessing450/assets/134234720/b74766a1-1a36-4b9b-9a69-83da5fda4cd3)
-
+![tumblr_52ad40328322f1dbd5e3c8948dc3d8bb_66b6fd7c_500](https://github.com/Blessing450/Blessing450/assets/134234720/e0a04d72-c2a5-49d8-a6b6-dceb3f37c563)
  
  
  
